@@ -1,5 +1,5 @@
-Olá!! 👋
-O meu nome é Samara Sampaio, Seja bem-vindo ao meu perfil.
+Oiee!! 👋
+O meu nome é Samara Sampaio, Seja bem-vindo(a) ao meu perfil.
 
 📍 Sou de Umuarama/PR, Brasil
 
