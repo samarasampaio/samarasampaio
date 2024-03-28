@@ -1,6 +1,6 @@
 Oiee!! 👋
 O meu nome é Samara Sampaio, Seja bem-vindo(a) ao meu perfil.
 
-📍 Sou de Umuarama/PR, Brasil
+📍 Umuarama/PR, Brasil
 
-🏦 Cursando Sistemas de Informação e com entusiasmo na área de Dados
+🏦 Cursando Sistemas de Informação
